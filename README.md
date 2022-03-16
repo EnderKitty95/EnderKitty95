@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @EnderKitty95
+- 👀 I’m interested in Video Games, TV, Bypassing Securly
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on Nothing
